@@ -5,6 +5,6 @@ MTE-453 : Multimedia Technology Creation Project
 นายอภิรักษ์ สุวรรณ 1813210893  
 นายบวรยศ ทรัพย์สมบูรณ์ 1813210695  
   
-App Link : https://drive.google.com/file/d/1h765frUDHGeFdyVwRJUaCuem0cJX5fNR/view?usp=sharing
+Project Link (File) : https://drive.google.com/file/d/1h765frUDHGeFdyVwRJUaCuem0cJX5fNR/view?usp=sharing  
 Video Link : https://drive.google.com/file/d/1mEWZ1X8UT51SS84PKLAmaY2V62C7tlJj/view?usp=sharing  
 Poster Link : https://drive.google.com/file/d/1zZ4ijQeAJwy_zFALusy6U-ZTMMCOEKAR/view?usp=sharing
